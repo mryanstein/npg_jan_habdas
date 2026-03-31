@@ -1,0 +1,1 @@
+bigna konie po betonie
